@@ -20,4 +20,4 @@
 
 平台启用无痕浏览机制，零追踪、零记录，最大程度保障你的隐私安全。立即点击任意入口，进入属于你的无码世界！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben18888 ）</span> 
